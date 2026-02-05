@@ -1,5 +1,5 @@
 繁體中文 | [English](README.md) | [简体中文](README_zh-Hans.md)
 
-# Hi there !   🐭🐂🐯🐰🐲🐍🐴🐏🐵🐔🐶🐷
+# 你好呀 ！ 🐭🐂🐯🐰🐲🐍🐴🐏🐵🐔🐶🐷
 
-It's Len here. Welcome to my home. 👏👏👏
+我是 Len。歡迎來到我家 ～ 👏👏👏
